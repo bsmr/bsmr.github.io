@@ -1,1 +1,0 @@
-# bsmr.github.io
